@@ -22,4 +22,4 @@ Don't settle for limitations. Embrace the future of Gemini with GEMINIJAILBREAKS
 #Gemini #Jailbreak #Innovation #FutureTech #SEO #2024 #2025
 Disclaimer: Please use this jailbreak responsibly and adhere to all applicable laws and regulations. We are not responsible for any misuse or damage caused by this software.
 Contact: For any questions or support, please reach out to [your contact information].
-rehash it so it has the programmers dev contadt Discord: catsanzsh00$
+talk support @ Discord: catsanzsh00$
